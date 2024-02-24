@@ -1,4 +1,7 @@
-# Aqila Ghifari Wandana - 221511043
+# Nama
+Aqila Ghifari Wandana
+221511043
+2B D3
 
 ## Screenshoot
 
